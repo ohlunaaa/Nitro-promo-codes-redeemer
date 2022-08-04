@@ -1,4 +1,4 @@
-# Nitro-promo-codes-redeeme
+# Nitro-promo-codes-redeemer
 -----
 ## Information
 - ⭐ If you have something to add join the dc server https://discord.gg/wuTvHuTHgS
